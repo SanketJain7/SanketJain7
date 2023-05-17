@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Currently I am not active on this account please visit my another account. Link- https://github.com/Sj786jain
 
 <!--
 **SanketJain7/SanketJain7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
